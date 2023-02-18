@@ -7,7 +7,7 @@
 
 ---
 
-<center><img width='50%' src='assets/isla_dinner_bath_me.gif'></center>
+<center><img width='50%' src='isla_dinner_bath_me.gif'></center>
 
 ---
 <center>
