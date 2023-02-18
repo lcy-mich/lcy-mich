@@ -32,7 +32,7 @@ and uhhh idk what else to put here
 
 • going outside for the first time
 
-• meeting a woman
+• meeting a woman (i know i know, no need to be impressed)
 
 • talking to a woman
 
