@@ -29,11 +29,18 @@ i'm a little shy so i might not be able to talk much or respond eloquently, but 
 
 # chika chika chika boom ~ ☝(︶▽︶)👇
 
-this lwk me btw guys
+this lwk me btw guys ↓
 
 <p align="center">
   <img src="imgs/thegreenone.png" alt="the green one"/>
 </p>
+
+im from this place ↓
+
+<p align="center">
+  <img src="imgs/michael.png" alt="the green one"/>
+</p>
+
 
 <!--
 **lcy-mich/lcy-mich** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
