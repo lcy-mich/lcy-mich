@@ -14,7 +14,10 @@ and so!!
 - i like long distance cycling 🚴‍♂️💨 (speed boost from farting ~ vroooooom ~ )
 - i like creative writing and poetry 🔥✍ (blud thnks he shkspr 🥀)
 - i like old school rap 🎤🐀 (im only 19 but my mind is older type shi)
-- i love jazz and shi 🎷🐀 (you must take the A-train to go to sugar hill way up in harlem 🚂)
+- i love jazz and big band 🎷🐀 (you must take the A-train to go to sugar hill way up in harlem 🚂)
+
+- i love working with hardware 🤖 (despite not being good at circuitry)
+- im learning to make games and work with unity 🕹🎮 (thank you [catlikecoding](https://catlikecoding.com/jasper-flick/) <3 u the goat!!)
 
 # boots and cats and boots and cats and ~ ☜(⌒▽⌒)☞
 
