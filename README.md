@@ -27,6 +27,10 @@ so if you're a human (or a cat or dog), please dont hesistate to come up and tal
 
 i'm a little shy so i might not be able to talk much or respond eloquently, but i dont hate it ~ so please keep talking to me!!!!
 
+# chika chika chika boom ~ ☝(︶▽︶)👇
+
+this lwk me btw guys
+
 <p align="center">
   <img src="imgs/thegreenone.png" alt="the green one"/>
 </p>
