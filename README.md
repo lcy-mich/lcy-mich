@@ -41,6 +41,8 @@ im from this place ↓
   <img src="imgs/michael.png" alt="the green one"/>
 </p>
 
+# waka waka ~ 🤟(ﾟヮﾟ✋)
+
 
 <!--
 **lcy-mich/lcy-mich** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
