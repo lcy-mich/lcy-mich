@@ -17,7 +17,7 @@ and so!!
 - i love jazz and big band 🎷🐀 (you must take the A-train to go to sugar hill way up in harlem 🚂)
 
 - i love working with hardware 🤖 (despite not being good at circuitry)
-- im learning to make games and work with unity 🕹🎮 (thank you [catlikecoding](https://catlikecoding.com/jasper-flick/) <3 u the goat!!)
+- im learning to make games and work with unity 🕹🎮 (thank you [catlikecoding](https://catlikecoding.com/jasper-flick/) for your articles and thank you my g [yeraly](https://github.com/BalgaGames) <3 u da goats!!)
 
 # boots and cats and boots and cats and ~ ☜(⌒▽⌒)☞
 
