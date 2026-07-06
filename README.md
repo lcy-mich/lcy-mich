@@ -15,15 +15,17 @@ and so!!
 - i like creative writing and poetry 🔥✍ (blud thnks he shkspr 🥀)
 - i like old school rap 🎤🐀 (im only 19 but my mind is older type shi)
 - i love jazz and big band 🎷🐀 (you must take the A-train to go to sugar hill way up in harlem 🚂)
+- i love rum raisin icecream and also green bean icecream 🥃🍇💚 (i can eat five tonnes in one sitting)
 
 - i love working with hardware 🤖 (despite not being good at circuitry)
 - im learning to make games and work with unity 🕹🎮 (thank you [catlikecoding](https://catlikecoding.com/jasper-flick/) for your articles and thank you my g [yeraly](https://github.com/BalgaGames) <3 u da goats!!)
+
 
 # boots and cats and boots and cats and ~ ☜(⌒▽⌒)☞
 
 i love humans and cats and dogs!!! 🕺💃 🎵~ 🎷🐈 🎶~ 🎸🐶
 
-so if you're a human (or a cat or dog), please dont hesistate to come up and talk to me!!!
+so if you're a human (or a cat or dog), please dont hesistate to come and talk to me!!!
 
 i'm a little shy so i might not be able to talk much or respond eloquently, but i dont hate it ~ so please keep talking to me!!!!
 
