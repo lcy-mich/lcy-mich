@@ -15,11 +15,14 @@ and so!!
 - i like creative writing and poetry 🔥✍ (blud thnks he shkspr 🥀)
 - i like old school rap 🎤🐀 (im only 19 but my mind is older type shi)
 - i love jazz and big band 🎷🐀 (you must take the A-train to go to sugar hill way up in harlem 🚂)
-- i love rum raisin icecream and also green bean icecream 🥃🍇💚 (i can eat five tonnes in one sitting)
+- i love rum raisin and also green bean icecream 🥃🍇💚 (i can eat five tonnes in one sitting)
 
 - i love working with hardware 🤖 (despite not being good at circuitry)
 - im learning to make games and work with unity 🕹🎮 (thank you [catlikecoding](https://catlikecoding.com/jasper-flick/) for your articles and thank you my g [yeraly](https://github.com/BalgaGames) <3 u da goats!!)
+- im also currently learning web dev and learning to work with vue.js 😍😍🥰🥰 (thank you [尤雨溪](https://evanyou.me) founder of voidzero)
 
+- if my code is super awesome and cool its cus i **dont** vibecode 💪😎👍
+- if my code is horrific beyond human comprehension its cus uh... i **dont** vibecode 💔🫩🥀
 
 # boots and cats and boots and cats and ~ ☜(⌒▽⌒)☞
 
@@ -40,7 +43,7 @@ this lwk me btw guys ↓
 im from this place ↓
 
 <p align="center">
-  <img src="imgs/michael.png" alt="the green one"/>
+  <img src="imgs/michael.png" alt="michael, the place"/>
 </p>
 
 # waka waka ~ 🤟(ﾟヮﾟ✋)
@@ -60,6 +63,3 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-
-<!--START_SECTION:waka-->
-<!--END_SECTION:waka-->
